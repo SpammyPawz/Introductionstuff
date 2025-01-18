@@ -1,9 +1,11 @@
-hi you may call me winter stanza, wally, or whatever you like,, i guess.
+[UPDATE INTRO.]
 
-i mainly cosplay as twilight so yea,,
 
-Im always playing ponytown!!
+hi, you can call me Wally/Winter Stanza, whatever U like!
+mainly cosplaying as twilight, KC, or whatever,, or js as an oc
 
-interests since why not: DHMIS, MLP, LTWW, 101DS, ALF, and umm,, alot
+Interests: DHMIS, LTWW, 101DS,,,,, probably some old shows,, etc.
 
-bye :/
+listening to music alot i guess.
+
+also stop walking up to me im not gonna help you with your stupid ocs!!!!!!!!!
