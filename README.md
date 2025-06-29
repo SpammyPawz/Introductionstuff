@@ -1,4 +1,8 @@
-hi,, you can call me Fritz or Kota
+
 minor
+
 Trans (ftm)!!
-thats,, it. yeah
+
+no dni
+
+i have other interests like,, catch teenieping, wolftales, stuff like that
