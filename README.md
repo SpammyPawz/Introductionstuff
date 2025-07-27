@@ -1,1 +1,1 @@
-Reworking this.. yeah
+my intro is in my carrd,, yeah
