@@ -27,44 +27,83 @@ Games:
 ## +FAVORITE CHARACTERS+
 
 Medic
+
 Astro 
+
 Yatta
+
 Grey/Gray
+
 Wenda/White
+
 Engineer
+
 Royal Margarine Cookie
+
 Sebastian Debeste
+
 Merasmus
+
 Mettaton
+
 Temmie
+
 Flurry Heart
+
 C00lkidd
+
 Scout
+
 Spamton
+
 Toriel
+
 Bex
+
 Ramunade
+
 Mr. Tenna
+
 Pinki
+
 Sky
+
 Tony The Clock
+
 Kris
+
 Martin Kratt
+
 Chris Kratt
+
 Jimmy (WK)
+
 Cureping
+
 Almond Cookie
+
 Looey
+
 Apollo Justice
+
 Samuel
+
 Hollyberry Cookie
+
 Apple Pierate
+
 Blueberry Pielot
+
 Chur Bum
+
 Noelle Holliday
+
 Cleonya
+
 Usalina
+
 Merupo
+
 Shadow Milk Cookie
 
 ## ?
