@@ -8,7 +8,8 @@
 . I'm multifandom as you can see from the skins i make.
 
 ;; I'm usually at this spot in the safe server, I'm either dancing, or just sitting there.
-(Insert spot)
+<img width="1280" height="800" alt="Screenshot_20250816-162255" src="https://github.com/user-attachments/assets/cfebd04f-f21c-4ee2-b18e-5b4669d6553d" />
+
 
 ;; I always have my github on my skins so you can tell its me 
 ## __+INTERESTS+__
