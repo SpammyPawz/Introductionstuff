@@ -11,3 +11,5 @@
 (Insert spot)
 
 ;; I always have my github/socials on my skins so you can tell its me 
+## __+INTERESTS+__
+(anything in bold is my favourite)
