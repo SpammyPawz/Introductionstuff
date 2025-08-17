@@ -7,8 +7,9 @@
 
 . I'm multifandom as you can see from the skins i make.
 
-;; I'm usually at this spot in the safe server, I'm either dancing, sitting there, or spinning around/moving about
-<img width="1280" height="800" alt="Screenshot_20250816-162255" src="https://github.com/user-attachments/assets/cfebd04f-f21c-4ee2-b18e-5b4669d6553d" />
+;; I'm usually at this spot in the safe server 2, I'm either dancing, sitting there, or spinning around/moving about
+<img width="1280" height="800" alt="Screenshot_20250816-224740" src="https://github.com/user-attachments/assets/127031a3-acca-45f1-a9ca-67f1e9edeb7e" />
+
 
 
 ;; I always have my github on my skins so you can tell its me 
