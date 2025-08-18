@@ -5,8 +5,7 @@
 
 . I'm multifandom as you can see from the skins i make.
 
-;; I'm usually at this spot in the safe server 2, I'm either dancing, sitting there, or spinning around/moving about
-<img width="1280" height="800" alt="Screenshot_20250816-224740" src="https://github.com/user-attachments/assets/127031a3-acca-45f1-a9ca-67f1e9edeb7e" />
+;; I'm usually in the safe server 2, or safe server. I'm either dancing, sitting there, or spinning around/moving about
 
 
 
