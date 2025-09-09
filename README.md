@@ -1,13 +1,11 @@
 ## __+ABOUT ME+__
-;; You can call me Dell, Medic, Gray, or Astro 
+;; You can call me J'Astro, Pink, or Alexis
 
 ! I’m a libra (october 22nd) :33
 
 . I'm multifandom as you can see from the skins i make.
 
 ;; I'm usually in the safe server 2, or safe server. I'm either dancing, sitting there, or spinning around/moving about
-
-
 
 ;; I always have my github on my skins so you can tell its me 
 ## __+INTERESTS+__
@@ -107,4 +105,4 @@ Shadow Milk Cookie
 
 ## ?
 
-thank u for reading!! Last updated: 16/8/25
+thank u for reading!! Last updated: 9/9/25
