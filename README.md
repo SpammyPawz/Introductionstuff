@@ -1,3 +1,7 @@
 <img width="1280" height="128" alt="IMG-7321" src="https://github.com/user-attachments/assets/178c3642-3656-4b90-8132-3dc0b6154c57" />
 
+**HEY HEY H EYYY!!! It seems tha t you have clicked 0 n my page,,, fo r some reas o n ... hi.**
+
+
+**You ca n call me Alexis , Spamton , ,, Pi n k , or Lunar :3 . I go b y She/I t!!  I am either @ the Undert a l e/Deltarun e area (usually?? a dist a n ce away) docks, or literall ly anywhe r e else.**
 
