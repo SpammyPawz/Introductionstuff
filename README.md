@@ -1,7 +1,7 @@
 <img width="1280" height="128" alt="IMG-7321" src="https://github.com/user-attachments/assets/178c3642-3656-4b90-8132-3dc0b6154c57" />
 
-[!NOTE]
-Don 't mind the typ i ng quir k, its all fo r funnn!!!!!
+> [!NOTE]
+> Don 't mind the typ i ng quir k, its all fo r funnn!!!!!
 
 **HEY HEY H EYYY!!! It seems tha t you have clicked 0 n my page,,, fo r some reas o n ... hi.**
 
