@@ -11,3 +11,8 @@
 **No DNI , 'cause i ca n just bl 0 ck people**
 
 **Also,, I'm a minor.**
+
+
+
+<img width="1280" height="128" alt="IMG-7321" src="https://github.com/user-attachments/assets/e3abd9b5-4ecd-4fa0-a381-a38e946c3623" />
+
