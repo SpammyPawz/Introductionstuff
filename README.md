@@ -18,4 +18,10 @@
 
 **I r e a l l y like...**
 
-**DELT∆RUNE (duhh), Dandy 's World, Team 4tress 2, Cookie Run Kingdom , drawi n g... S3lfshipp i ng/0C x Canon, PonyTow n, any ran t/commen t a ry (??) channelss, like Layze, Hay l 0 Hayley, etc...**
+**DELT∆RUNE (duhh), Dandy 's World, Team 4tress 2, Cookie Run Kingdom , drawi n g... S3lfshipp i ng/0C x Canon, PonyTow n, Wolf Ta l es...> & any ran t/commen t a ry (??) channelss, like Layze, Hay l 0 Hayley, etc... I also like yaoi:/**
+
+**I don 't have a n y specif ic music tastes, i jus ''t like songs that r good, or ones i find good.**
+
+
+
+>> I make so n a s of my fav charact 3r s, itss fun!
