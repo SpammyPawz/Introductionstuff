@@ -14,5 +14,5 @@
 
 
 
-<img width="1280" height="128" alt="IMG-7321" src="https://github.com/user-attachments/assets/e3abd9b5-4ecd-4fa0-a381-a38e946c3623" />
+![IMG-7381](https://github.com/user-attachments/assets/f59271e5-d8ce-45ec-8762-7c802ff63095)
 
