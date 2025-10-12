@@ -1,27 +1,24 @@
 <img width="1280" height="128" alt="IMG-7321" src="https://github.com/user-attachments/assets/178c3642-3656-4b90-8132-3dc0b6154c57" />
 
-> [!NOTE]
-> Don 't mind the typ i ng quir k, its all fo r funnn!!!!!, i guess.
+Hi! u can call me Alexis or Pink, i go by She/It,, obviously
 
-**HEY HEY H EYYY!!! It seems tha t you have clicked 0 n my page,,, fo r some reas o n ... hi.**
-
-
-**You ca n call me Alexis , Spamton , ,, Pi n k , or Lunar :3 . I go b y She/I t!!  I am either @ the Undert a l e/Deltarun e area (usually?? a dist a n ce away) docks, or literall ly anywhe r e else.**
-
-**No DNI , 'cause i ca n just bl 0 ck people**
-
-**Also,, I'm a minor, a n d i love mus i c**
+I usually stand in the same spot, wearing a seasonal cat skin :D
 
 
 
 ![IMG-7381](https://github.com/user-attachments/assets/f59271e5-d8ce-45ec-8762-7c802ff63095)
 
-**I r e a l l y like...**
+**I really like...**
 
-**DELT∆RUNE (duhh), Dandy 's World, Team 4tress 2, Cookie Run Kingdom , drawi n g... S3lfshipp i ng/0C x Canon, PonyTow n, Wolf Ta l es...> & any ran t/commen t a ry (??) channelss, like Layze, Hay l 0 Hayley, etc... I also like yaoi:/**
+**DELT∆RUNE (duhh), Dandy 's World, Team Fotress 2, Cookie Run Kingdom , drawing... Selfshipping/OC x Canon, PonyTown, Wolf Tales...> & any rant/commentary (??) channelss, like Layze, Haylo Hayley, etc... I also like yaoi:/**
 
-**I don 't have a n y specif ic music tastes, i jus ''t like songs that r good, or ones i find good.**
+**I don 't have any specific music tastes, i just like songs that r good, or ones i find good.**
 
+<img width="1280" height="204" alt="IMG-9890" src="https://github.com/user-attachments/assets/09e2bbae-1b71-475a-bb07-09e6cc398dcd" />
 
+																__Where to find me?__
+                                I'm either in Safe server (next to the proship tree), safe server two, Spawn, Collecting items next to the bunny pen, etc...
 
->> I make so n a s of my fav charact 3r s, itss fun!
+                                --------
+Last updated: 12th of October, 2025.
+
